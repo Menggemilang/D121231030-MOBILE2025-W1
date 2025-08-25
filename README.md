@@ -1,1 +1,3 @@
 # D121231030-MOBILE2025-W1
+NAMA:Muh. Gemilang Nugraha Ismajaya
+NIM: D121231030
